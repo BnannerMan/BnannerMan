@@ -13,4 +13,3 @@ Here are some traits to get you started:
 - 📫 How to reach me: caleb.kirk@byteharder.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: My stomach has more neurons than a cat's brain!
-
